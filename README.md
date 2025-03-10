@@ -10,8 +10,8 @@ I'm **Salini Ambadapudi**, an Electrical and Computer Engineering student passio
 ### 📫 How to reach me:  
 - **LinkedIn:** [linkedin.com/in/salini-ambadapudi](www.linkedin.com/in/salini-ambadapudi-am27)  
 - **Email:**
--     School Email: Vambada1@students.kennesaw.edu
--     Personal Email: shaliniambadapudi@gmail.com
+-     Vambada1@students.kennesaw.edu
+-     Shaliniambadapudi@gmail.com
 
 ### ⚡ Fun fact:  
 I've visited **28 U.S. states** and counting! 🌍✈️  
