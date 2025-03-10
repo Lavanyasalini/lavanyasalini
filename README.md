@@ -8,8 +8,8 @@ I'm **Salini Ambadapudi**, an Electrical and Computer Engineering student passio
 - **Embedded Systems & IoT** for smart and efficient computing  
 
 ### 📫 How to reach me:  
-- **LinkedIn:** [linkedin.com/in/lavanyasalini](https://www.linkedin.com/in/lavanyasalini/)  
-- **Email:** [Your Email Here]  
+- **LinkedIn:** [linkedin.com/in/salini-ambadapudi](www.linkedin.com/in/salini-ambadapudi-am27)  
+- **Email:** [School Email](Vambada1@students.kennesaw.edu)  
 
 ### ⚡ Fun fact:  
 I've visited **28 U.S. states** and counting! 🌍✈️  
